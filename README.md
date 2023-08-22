@@ -1,1 +1,0 @@
-# jpalm60.github.io
